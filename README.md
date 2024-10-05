@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Photovoltaic Solar Projects and**
 
-- 📫 How to reach me **diego@ipt.br**
+- 📫 How to reach me **diego.silva@amazul.gov.br**
 
 - 📄 Know about my experiences [http://lattes.cnpq.br/3967584055400444](http://lattes.cnpq.br/3967584055400444)
 
